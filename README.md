@@ -71,3 +71,5 @@ Janeiro de 2008: A revista NeoTokyo escreveu sobre os furries, focando-se nas fu
 8 de maio de 2017: Novamente o Vice Brasil tratou do furry fandom e de alguns de seus adeptos, dessa vez mostrando o Furboliche, evento de boliche onde os furries se encontram semestralmente, realizado em São Bernardo do Campo.
 20 de setembro de 2019: O portal R7 fez uma extensa matéria sobre o furry fandom e seus adeptos durante a convenção Brasil FurFest 2019.
 Apesar de apresentar e explicar sobre o fandom, a mídia expressa interesse maior nas fursuits, porém, esse é uma dentre as demais características do fandom.
+
+![6ba9e137d59ca69780db4364546e465b](https://user-images.githubusercontent.com/118438998/202439589-21beb209-3c1e-4fe9-b942-534e0cbb0f10.jpg)

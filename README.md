@@ -75,4 +75,5 @@ Apesar de apresentar e explicar sobre o fandom, a mídia expressa interesse maio
 ![HD-wallpaper-tv-show-helluva-boss-loona-helluva-boss-octavia-helluva-boss](https://user-images.githubusercontent.com/118438998/202444070-73dc40cc-a3ae-494e-86d5-73e0bcf3fda7.jpg)
 
 Animação: Helluva Boos
+
 Personagens da imagem: Loona (wolf) e Octavia (owl=coruja)

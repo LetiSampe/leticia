@@ -18,6 +18,8 @@ Durante a década de 80, fãs de furry começaram a publicar fanzines, desenvolv
 
 No Brasil, por volta do ano 2000 o fandom tornou-se mais popular, sendo então criados dois sites especializados no assunto: um fórum, chamado FurryBrasil, e uma fanzine, chamada Fauna Urbana.
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e2NEF7I5WYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 Inspiração
 
 Séries alegóricas, incluindo obras de ficção científica e fantasia, e desenhos animados com características antropomórficas são frequentemente citados como a inspiração inicial para o fandom. Um estudo conduzido em 2007 sugeriu que, quando comparado com um grupo controle não-furry, uma grande proporção de furries se auto-identificavam com desenhos animados, tal como crianças, e recorda de ter assistido com mais frequência, bem como desfrutarem mais de obras de ficção científica do que as que estão fora da comunidade.

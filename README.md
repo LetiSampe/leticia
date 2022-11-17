@@ -16,8 +16,7 @@ O termo específico furry para se especificar ao gênero foi criado através de 
 
 Durante a década de 80, fãs de furry começaram a publicar fanzines, desenvolver grupos sociais que eventualmente passaram a agendar eventos. Em 1989, começou a haver um bom número de pessoas interessadas para iniciar a primeira convenção de furry. Ao longo da década seguinte, a Internet tornou-se acessível para boa parte da população e tornou-se um meio popular para fãs de furry se socializarem.
 
-No Brasil, por volta do ano 2000 o fandom tornou-se mais popular, sendo então criados dois sites especializados no assunto: um fórum, chamado FurryBrasil, e uma fanzine, chamada Fauna Urbana.![repository-open-graph-template](https://user-images.githubusercontent.com/118438998/202443101-d47adf43-561e-48bc-ab02-3cb20c9c9ab7.png)
-
+No Brasil, por volta do ano 2000 o fandom tornou-se mais popular, sendo então criados dois sites especializados no assunto: um fórum, chamado FurryBrasil, e uma 
 
 Inspiração
 
@@ -73,4 +72,4 @@ Janeiro de 2008: A revista NeoTokyo escreveu sobre os furries, focando-se nas fu
 20 de setembro de 2019: O portal R7 fez uma extensa matéria sobre o furry fandom e seus adeptos durante a convenção Brasil FurFest 2019.
 Apesar de apresentar e explicar sobre o fandom, a mídia expressa interesse maior nas fursuits, porém, esse é uma dentre as demais características do fandom.
 
-![6ba9e137d59ca69780db4364546e465b](https://user-images.githubusercontent.com/118438998/202439589-21beb209-3c1e-4fe9-b942-534e0cbb0f10.jpg)
+![6ba9e137d59ca69780db4364546e465b](https://user-images.githubusercontent.com/118438998/202439589-21beb209-3c1e-4fe9-b942-534e0cbb0f10.png)

@@ -72,4 +72,4 @@ Janeiro de 2008: A revista NeoTokyo escreveu sobre os furries, focando-se nas fu
 20 de setembro de 2019: O portal R7 fez uma extensa matéria sobre o furry fandom e seus adeptos durante a convenção Brasil FurFest 2019.
 Apesar de apresentar e explicar sobre o fandom, a mídia expressa interesse maior nas fursuits, porém, esse é uma dentre as demais características do fandom.
 
-![6ba9e137d59ca69780db4364546e465b](https://user-images.githubusercontent.com/118438998/202439589-21beb209-3c1e-4fe9-b942-534e0cbb0f10.png)
+![6ba9e137d59ca69780db4364546e465b](https://user-images.githubusercontent.com/118438998/202439589-21beb209-3c1e-4fe9-b942-534e0cbb0f10.jpg)

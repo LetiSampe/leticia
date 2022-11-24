@@ -80,7 +80,7 @@ Em janeiro de 2019, o presidente da FIFA Gianni Infantino divulgou um relatório
 
 Em 21 de novembro de 2022 foi divulgado pela FIFA a capacidade dos oito estádios sedes
 
-https://www.infomoney.com.br/wp-content/uploads/2019/06/estadio-khalifa-em-doha-catar.jpg?fit=900%2C508&quality=50&strip=all
+
 
 Convocações
 
@@ -127,7 +127,6 @@ A escolha do Catar como país anfitrião tem sido controversa; as autoridades da
 
 Em dezembro de 2017, a mídia mexicano Record acredita que a Fifa poderia retirar a organização da Copa do Mundo no Catar por causa do impacto potencial da crise diplomática de junho de 2017 entre o emirado e seus vizinhos.
 
-https://assets.goal.com/v3/assets/bltcc7a7ffd2fbf71f5/bltf72931588aec9e51/61d58597cac20c668bed46e4/h_57308940.jpg?auto=webp&format=jpg&quality=60&width=1280
 
 Condições dos trabalhadores
 A questão dos direitos dos trabalhadores migrantes também atraiu a atenção, depois que uma investigação do jornal The Guardian alegou que a muitos dos trabalhadores são negados alimentos e água, que seus documentos de identidade são retidos e que eles não são pagos em dia ou simplesmente não recebem salários, fazendo com que alguns deles sejam escravos. O jornal britânico estimou que até 4 000 trabalhadores podem morrer devido às falhas de segurança e outras causas quando a competição for realizada. Essas reivindicações foram baseadas no fato de que 522 trabalhadores nepaleses e outros de 700 trabalhadores indianos morreram desde o ano de 2010, quando a candidatura do Catar como anfitrião da Copa do Mundo foi conquistada. Cerca de 250 trabalhadores indianos morreram por ano, mas dado que há meio milhão de trabalhadores indianos no Catar, o governo da Índia diz que é um número bastante normal de mortes. No Reino Unido, em qualquer grupo de meio milhão de homens de 25 a 30 anos, uma média de 300 morrem a cada ano, uma taxa maior que entre os trabalhadores indianos no Catar.
@@ -156,7 +155,7 @@ Bola
 Ver artigo principal: Adidas Al Rihla
 A bola foi lançada em 30 de março de 2022 e é produzida pela Adidas, tendo seu nome Al Rihla; traduzido do árabe "A Jornada". Seu desenho é inspirado na cultura, arquitetura e bandeira do país anfitrião.
 
-https://s5.static.brasilescola.uol.com.br/be/2021/11/catar-2022.jpg
+
 
 Direitos de transmissão
 

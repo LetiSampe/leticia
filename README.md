@@ -182,4 +182,5 @@ A Copa do Mundo de 2022 já tem um pôster oficial, divulgado pela Fifa e pelo C
 
 Premiação
 A FIFA divulgou que o campeão da Copa do Mundo FIFA de 2022 vai receber, como premiação pela conquista do título mundial, 42 milhões de dólares. Já o país que terminar na segunda posição receberá 30 milhões de dólares. Também haverá premiações para os demais participantes, independente da posição que terminem na competição.
-![17_11_2021_-_Visita_ao_Estádio_Lusail_(51688058794)](https://user-images.githubusercontent.com/118438998/203764465-8fd64fd2-39fe-45cb-858d-0ea9e3765570.jpg)
+
+![1_mascote_copa_do_mundo_catar-7685385](https://user-images.githubusercontent.com/118438998/203765189-12997e74-9b66-4647-abee-7a77e66554a9.jpeg)

@@ -194,138 +194,95 @@ A FIFA divulgou que o campeão da Copa do Mundo FIFA de 2022 vai receber, como p
 GRUPO A : Catar, Equador, Senegal, Holanda
 20/11 (domingo)
 Catar x Equador - 13h
-
 21/11 (segunda-feira)
 Senegal x Holanda - 7h
-
 25/11 (sexta-feira)
 Catar x Senegal - 10h
-
 Holanda x Equador - 13h
-
 29/11 (terça-feira)
 Holanda x Catar - 12h
-
 Equador x Senegal - 12h
 
 GRUPO B : Inglaterra, Irã, Estados Unidos e País de Gales
 21/11 (segunda-feira)
 Inglaterra x Irã -10h
-
 Estados Unidos x País de Gales - 16h
-
-25/11 (sexta-feira)
+25/11 sexta-feira)
 Inglaterra x Estados Unidos - 16h
-
 País de Gales x Irã - 7h
-
 29/11 (terça-feira)
 País de Gales x Inglaterra - 16h
-
 Irã x Estados Unidos - 16h
 
 GRUPO C : Argentina, Arábia Saudita, México e Polônia
 22/11 (terça-feira)
 Argentina x Arábia Saudita - 7h
-
 México x Polônia - 13h
-
 26/11 (sábado)
 Argentina x México - 16h
-
 Polônia x Arábia Saudita - 10h
-
 30/11 (quarta-feira)
 Polônia x Argentina - 16h
-
 Arábia Saudita x México - 16h
 
 GRUPO D : França, Austrália; Emirados Árabes ou Peru, Dinamarca e Tunísia
-
 22/11 (terça-feira)
 Dinamarca x Tunísia - 10h
-
 França x Austrália, Emirados Árabes ou Peru - 16h
-
 26/11 (sábado)
 Tunísia x Austrália - 7h
-
 França x Dinamarca - 13h
-
 30/11 (quarta-feira)
 Tunísia x França - 12h
-
 Austrália, Emirados Árabes ou Peru x Dinamarca - 12h
 
 GRUPO E : Espanha, Costa Rica ou Nova Zelândia; Alemanha e Japão
 23/11 (quarta-feira)
 Alemanha x Japão - 10h
-
 Espanha x Costa Rica ou Nova Zelândia - 13h
-
 27/11 (domingo)
 Japão x Costa Rica ou Nova Zelândia - 7h
-
 Espanha x Alemanha - 16h
-
 01/12 (quinta-feira)
 Japão x Espanha - 16h
-
 Costa Rica ou Nova Zelândia x Alemanha - 16h
 
 GRUPO F : Bélgica, Canadá, Marrocos e Croácia
 23/11 (quarta-feira)
 Marrocos x Croácia - 7h
-
 Bélgica x Canadá - 16h
-
 27/11 (domingo)
 Bélgica x Marrocos 10h
-
 Croácia x Canadá - 13h
-
 01/12 (quinta-feira)
 Croácia x Bélgica - 12h
-
 Canadá x Marrocos - 12h
 
 GRUPO G : Brasil, Sérvia, Suíça e Camarões
 24/11 (quinta-feira)
 Suíça x Camarões - 7h
-
 Brasil x Sérvia - 16h (horário de Brasília), no Estádio Lusail
-
 28/11 (segunda-feira)
 Camarões x Sérvia - 7h
-
 Brasil x Suíça - 13h (horário de Brasília), no Estádio 974
-
 02/12 (sexta-feira)
 Camarões x Brasil - 16h (horário de Brasília), no Estádio Lusail
-
 Sérvia x Suíça - 16h
 
 GRUPO H : Portugal, Gana, Uruguai e Coreia do Sul
 24/11 (quarta-feira)
 Uruguai x Coreia do Sul - 10h
-
 Portugal x Gana - 13h
-
 28/11 (segunda-feira)
 Coreia do Sul x Gana - 10h
-
 Portugal x Uruguai - 16h
-
 02/12 (sexta-feira)
 Coreia do Sul x Portugal - 12h
-
 Gana x Uruguai - 12h
 
 Oitavas de final
 03/12 (sábado)
 1º do grupo A x 2º do grupo B - 12h (Oitavas 1)
-
 1º do grupo C x 2º do Grupo D - 16h (Oitavas 2)
-
 04/12 (domingo)
 1º do grupo B x 2º do grupo A - 16h (Oitavas 3)

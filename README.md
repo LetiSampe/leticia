@@ -22,7 +22,8 @@ Antecedentes
   Países inelegíveis para a edição de 2018
   Países inelegíveis para as edições de 2018 e 2022
   
-  ![Khalifa_Stadium,_Doha,_Brazil_vs_Argentina_(2010)](https://user-images.githubusercontent.com/118438998/203764754-e7687d0f-8d78-4bf6-89db-99719e289b24.jpg)
+  ![18112225700176](https://user-images.githubusercontent.com/118438998/203765732-e1899291-ddbf-4375-97ec-c588edb71f98.jpg)
+
 
 Candidatura
 
@@ -82,7 +83,6 @@ Em janeiro de 2019, o presidente da FIFA Gianni Infantino divulgou um relatório
 
 Em 21 de novembro de 2022 foi divulgado pela FIFA a capacidade dos oito estádios sedes
 
-![Al_Bayt_Stadium](https://user-images.githubusercontent.com/118438998/203764684-b32e65ce-092b-4d1a-a78e-d25690d21ef1.jpg)
 
 
 Convocações
@@ -93,6 +93,8 @@ As seleções classificadas para a Copa do Mundo de 2022, poderão convocar 26 j
 Vale lembrar que, na Copa do Mundo de 2018, ainda eram permitidas apenas as três substituições tradicionais.
 
 A International Football Association Board (Ifab), entidade que controla as regras do futebol, anunciou na quarta-feira, 22 de junho, mudanças nas normas do esporte. Entre elas, estão o aumento do número de jogadores que podem ficar no banco de reservas em cada partida, de 12 para 15 atletas – possibilitando, assim, que todos os 26 convocados de cada seleção estejam disponíveis nos jogos da Copa do Mundo de 2022.
+
+![maxresdefault](https://user-images.githubusercontent.com/118438998/203765521-ae321546-921f-4a34-9330-a38e71a3fb6e.jpg)
 
 Arbitragem
 
@@ -138,6 +140,9 @@ Em maio de 2015, uma equipe de quatro jornalistas da BBC foram presos por dois d
 
 Em junho de 2015, o The Wall Street Journal informou que a Confederação Sindical Internacional estimou que mais de 1 200 trabalhadores haviam morrido enquanto trabalhavam em projetos imobiliários e de infraestrutura relacionados à Copa do Mundo, sem qualquer explicação do governo do Catar. A BBC informou mais tarde que este número muitas vezes citado de 1 200 trabalhadores que morreram na construção da Copa do Mundo entre 2011 e 2013 não é correto e que o número de 1 200 representa as mortes de todos os indianos e nepaleses que trabalham no Catar, não apenas dos trabalhadores envolvidos na preparação para a Copa do Mundo e/ou apenas dos trabalhadores da construção civil. A maioria dos nativos do Catar evita fazer trabalhos manuais ou empregos pouco qualificados; além disso, eles recebem preferência no local de trabalho.
 
+![taca-da-copa-do-mundo-1667512066220_v2_900x506](https://user-images.githubusercontent.com/118438998/203766011-ec84bfee-cfbe-4ce1-b9d9-8d22c9a2b37b.jpg)
+
+
 Eleição
 Ver artigos principais: Caso de corrupção na FIFA em 2015 e Eleição da sede das Copas do Mundo FIFA de 2018 e 2022#Denúncia de compra de votos
 As alegações de corrupção nos processos de licitação para as Copas do Mundo de 2018 e 2022 causaram ameaças da The Football Association da Inglaterra para boicotar o torneio. A FIFA nomeou Michael J. Garcia, advogado dos Estados Unidos, para investigar e produzir um relatório (o Relatório Garcia) sobre as alegações de corrupção. Embora o relatório nunca tenha sido publicado, a FIFA divulgou um resumo de 42 páginas de suas descobertas, conforme determinado pelo juiz alemão Hans-Joachim Eckert. O resumo de Eckert livra a Rússia e o Catar de qualquer irregularidade, mas foi denunciado pelos críticos como parcial. Garcia criticou o resumo como sendo "materialmente incompleto" com "representações errôneas e conclusões dos fatos" e apelou ao Comitê de Recurso da FIFA. O comitê se recusou a ouvir seu recurso, então Garcia renunciou em protesto contra a conduta da FIFA, citando uma "falta de liderança" e falta de confiança na independência de Eckert.
@@ -163,8 +168,7 @@ A bola foi lançada em 30 de março de 2022 e é produzida pela Adidas, tendo se
 Direitos de transmissão
 
 Ver artigo principal: Lista de transmissoras da Copa do Mundo FIFA de 2022
-No Brasil, os direitos de transmissão pertencem ao Grupo Globo pelas TVs aberta (TV Globo), por assinatura (SporTV) e streaming (Globoplay). No caso da segunda, será a primeira vez que transmite a Copa sozinha. Em 23 de junho de 2020, o Grupo Globo entrou com um processo contra a FIFA pela suspensão imediata do pagamento de uma parcela de US$90 milhões (R$462 milhões), referente aos direitos de transmissão da Copa do Mundo FIFA de 2022. O motivo alegado foi a recessão econômica por conta da Pandemia de COVID-19. Em 19 de março de 2021, o processo foi arquivado pela 6ª vara empresarial do Rio de Janeiro após as duas partes chegarem a um acordo, mediante negociações. Em outubro do mesmo ano, o grupo renuncia a permanência dos direitos de exclusividade de transmissão da Copa de 2022 pelas suas plataformas digitais. A renúncia ocorreu depois de tentativas de redução do valor do acordo para a transmissão do evento por meios digitais. Com a renúncia da Globo pela internet, o Facebook chegou a negociar a compra dos direitos de transmissão, mas o projeto não foi adiante.[136] Faltando 16 dias para o início da Copa, o influencer Casimiro, em parceria com a produtora Livermode, anunciou a compra dos direitos de transmissão do mundial no dia 4 de novembro de 2022, em um acordo de sublicenciamento no streaming, para a cobertura no Twitch de 22 dos 64 jogos da Copa. Faltando apenas 3 dias para o início do mundial, em 17 de novembro de 2022, a The Walt Disney Company adquiriu os direitos dos highlights (melhores momentos) para o streaming através do Star+. O Grupo Bandeirantes de Comunicação chegou a negociar com a Globo um acordo de sublicenciamento para as transmissões da Copa no canal por assinatura BandSports. No entanto, as negociações não avançaram após a recusa da Globo em revender os direitos.[139] Apesar de não conseguir os direitos na televisão, o grupo adquiriu os mesmos para a cobertura nas rádios Band FM e BandNews FM. Também transmitirão a copa pela rádio a Rede Transamérica, a Jovem Pan FM e a Rádio![Uploading 28_10_2019_Visita_ao_estádio_de_futebol_Al_Janoub_(48977932316).jpg…]()
- Itatiaia.
+No Brasil, os direitos de transmissão pertencem ao Grupo Globo pelas TVs aberta (TV Globo), por assinatura (SporTV) e streaming (Globoplay). No caso da segunda, será a primeira vez que transmite a Copa sozinha. Em 23 de junho de 2020, o Grupo Globo entrou com um processo contra a FIFA pela suspensão imediata do pagamento de uma parcela de US$90 milhões (R$462 milhões), referente aos direitos de transmissão da Copa do Mundo FIFA de 2022. O motivo alegado foi a recessão econômica por conta da Pandemia de COVID-19. Em 19 de março de 2021, o processo foi arquivado pela 6ª vara empresarial do Rio de Janeiro após as duas partes chegarem a um acordo, mediante negociações. Em outubro do mesmo ano, o grupo renuncia a permanência dos direitos de exclusividade de transmissão da Copa de 2022 pelas suas plataformas digitais. A renúncia ocorreu depois de tentativas de redução do valor do acordo para a transmissão do evento por meios digitais. Com a renúncia da Globo pela internet, o Facebook chegou a negociar a compra dos direitos de transmissão, mas o projeto não foi adiante.[136] Faltando 16 dias para o início da Copa, o influencer Casimiro, em parceria com a produtora Livermode, anunciou a compra dos direitos de transmissão do mundial no dia 4 de novembro de 2022, em um acordo de sublicenciamento no streaming, para a cobertura no Twitch de 22 dos 64 jogos da Copa. Faltando apenas 3 dias para o início do mundial, em 17 de novembro de 2022, a The Walt Disney Company adquiriu os direitos dos highlights (melhores momentos) para o streaming através do Star+. O Grupo Bandeirantes de Comunicação chegou a negociar com a Globo um acordo de sublicenciamento para as transmissões da Copa no canal por assinatura BandSports. No entanto, as negociações não avançaram após a recusa da Globo em revender os direitos.[139] Apesar de não conseguir os direitos na televisão, o grupo adquiriu os mesmos para a cobertura nas rádios Band FM e BandNews FM. Também transmitirão a copa pela rádio a Rede Transamérica, a Jovem Pan FM e a Rádio Itatiaia.
 
 Pela América do Sul (exceto Brasil), os direitos de transmissão foram adquiridos pela Mountrigi Management Group Limited, grupo pertencente a Televisa, mas com a revenda para emissoras locais, sendo elas a TyC Sports na Argentina, a DirecTV Sports para o Chile, Bolívia, Colômbia, Equador, Peru, Uruguai e Paraguai. No caso da Colômbia, a Caracol Televisión adquiriu os direitos para a TV aberta local. Pelos Estados Unidos, os direitos são pertencentes a Fox Broadcasting Company e Telemundo. Na Europa, a União Europeia de Radiodifusão realiza as negociações com a Fifa para transmitir os jogos também em países menores, mas com os direitos locais já sendo revendidos, sendo eles a RAI na Itália, TF1 na França, ARD na Alemanha e a BBC no Reino Unido. Pela África, a cobertura fica a cargo do SuperSport e a BelN Sports, no caso da última com as transmissões para partes da Ásia e no país sede.
 

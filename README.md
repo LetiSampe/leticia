@@ -1,79 +1,181 @@
 # leticia
-Furry fandom
 
-Furry ("peludo" em inglês) é um estilo de subcultura relacionada a personagens animais ficcionais que apresentam características antropomórficas, assim apresentando personalidade e características humanas. Alguns exemplos de características antropomórficas é a atribuição de inteligência, expressões faciais personificadas, habilidades de fala, andar com duas pernas e vestir-se. As pessoas que se interessam por esse estilo se reúnem em um grupo de fãs, chamado de furry fandom. Um participante desse grupo é chamado de furry.
+Copa do mundo 2022
 
-No fandom são exercidas atividades culturais que utilizam o conceito de personagens animais antropomórficos, podendo ser de qualquer gênero, como literárias, visuais e artesanatos. Qualquer trabalho em qualquer campo da arte pode ser incluída ao fandom, se contiver personagens animais com características humanas. Além dessas atividades, os furries se reúnem em convenções, muitas vezes nacionais ou globais.
+Copa do Mundo FIFA de 2022 ou Campeonato Mundial de Futebol FIFA de 2022 é a vigésima segunda edição deste evento esportivo, um torneio internacional de futebol masculino organizado pela FIFA (Federação Internacional de Futebol), que está ocorrendo no Catar. Esta edição é a primeira realizada no Oriente Médio e, é a última a ter o formato de 32 equipes, pois terá uma mudança no formato e número de equipes na edição de 2026, cuja sede será no Canadá, Estados Unidos e México, passando para 48 equipes.
 
-Personagens antropomórficos são frequentemente vistos em quadrinhos, desenhos animados, novelas alegóricas e jogos de computador. Normalmente é mais presente em gêneros infantis, ficção científica ou fantasia.
-Desde a década de 80, o termo furry passou a significar personagens antropomórficos. Na maioria dos casos, são antropomorfizados mamíferos, enquanto é menos frequente outros tipos de espécies ou seres fictícios.
+Com sete cidades-sede, o campeonato está sendo disputado entre 20 de novembro e terminará em 18 de dezembro, ao invés do período tradicional devido às altas temperaturas que o país sofre no meio do ano; esta é a primeira vez em que uma Copa do Mundo é disputada no final do ano.
 
-História
+Acusações de corrupção foram feitas após o Catar ganhar o direito de sediar o campeonato. A FIFA realizou uma investigação interna sobre estas alegações e absolveu o Catar de qualquer crime cometido. Em 27 de maio de 2015, promotores federais suíços abriram uma investigação sobre corrupção e lavagem de dinheiro nas eleições das cidades-sede das edições de 2018 e 2022.
 
-De acordo com o historiador de fandons Fred Patten, o conceito chamado furry foi originado em 1980 numa convenção de ficção científica, quando personagens desenhados pelo Steve Gallacci no comic Albedo Anthropomorphics iniciou a discussão a respeito de personagens antropomórficos na ficção científica.
+Em 7 de junho de 2015, foi anunciado que o Catar poderia perder o direito de sediar o campeonato, após denúncias de suborno. De acordo com Domenico Scala, representante da auditoria da FIFA, as denúncias surgiram após a divulgação do resultado da votação de eleição da cidade-sede.[6] Porém, nenhum indício foi comprovado e o Catar foi confirmado como sede desta edição.
 
-O termo específico furry para se especificar ao gênero foi criado através de fanzines no começo de 1983, enquanto o nome foi padronizado para por volta de 1990, quando foi definido como "a apreciação e disseminação de artes ou prosas relacionada a 'Furries', ou personagens ficcionais antropomórficos de mamíferos". Entretanto, alguns fãs consideram a origem do furry fandom muito mais antiga, com obras de ficção científica como Jungle Taitei lançada em 1965, a obra Watership Down de Richard Adams, publicada em 1972, e também o filme da Disney Robin Hood, sendo esses os exemplos mais citados. Para distinguir esses personagens de outros que são seriamente retratados, tais como a Lassie e Old Yeller, animais de desenhos animados são normalmente referidos como funny animals.
+O Catar sofreu diversas criticas sobre as condições dos trabalhadores dos novos estádios para a competição, sendo que a Anistia Internacional referiu-se como trabalho escravo a situação dos trabalhadores que sofriam abusos de direitos humanos, violando diversas regras da instituição.
 
-Durante a década de 80, fãs de furry começaram a publicar fanzines, desenvolver grupos sociais que eventualmente passaram a agendar eventos. Em 1989, começou a haver um bom número de pessoas interessadas para iniciar a primeira convenção de furry. Ao longo da década seguinte, a Internet tornou-se acessível para boa parte da população e tornou-se um meio popular para fãs de furry se socializarem.
+A FIFA apresentou o mascote oficial da Copa do Mundo de 2022, denominado La'eeb, um lenço de cabeça masculino tradicional da cultura árabe. Segundo a FIFA, a palavra La’eeb significa jogador habilidoso em árabe.
 
-No Brasil, por volta do ano 2000 o fandom tornou-se mais popular, sendo então criados dois sites especializados no assunto: um fórum, chamado FurryBrasil, e uma 
+Antecedentes
 
-Inspiração
+  Candidaturas para sediar a edição de 2018
+  Candidaturas para sediar a edição de 2022
+  Candidaturas canceladas
+  Países inelegíveis para a edição de 2018
+  Países inelegíveis para as edições de 2018 e 2022
+  
+Candidatura
 
-Séries alegóricas, incluindo obras de ficção científica e fantasia, e desenhos animados com características antropomórficas são frequentemente citados como a inspiração inicial para o fandom. Um estudo conduzido em 2007 sugeriu que, quando comparado com um grupo controle não-furry, uma grande proporção de furries se auto-identificavam com desenhos animados, tal como crianças, e recorda de ter assistido com mais frequência, bem como desfrutarem mais de obras de ficção científica do que as que estão fora da comunidade.
+Ver artigo principal: Eleição da sede das Copas do Mundo FIFA de 2018 e 2022
+O Catar decidiu apresentar a sua candidatura apenas para 2022. Com apenas 1,6 milhão de habitantes, o país pretendeu ser a primeira nação do Oriente Médio a receber tal competição, tentando aproximar os mundos ocidentais e orientais.
 
-Atividades
+Uma das preocupações da candidatura foram as temperaturas muito elevadas que se registram naquele país. A Copa do Mundo sempre foi realizada entre junho e julho, exatamente o período de recesso das ligas europeias. Nesse período de tempo, as temperaturas ultrapassam facilmente os 40 graus celsius, nunca baixando para menos de 30 graus celsius. O sheik Mohammed bin Hamad bin Khalifa al-Thani, autoridade responsável pela candidatura de 2022, afirmou que está em curso a introdução de uma tecnologia dentro dos estádios de modo a conseguir baixar as temperaturas em cerca de 20 graus celsius.
 
-De acordo com pesquisas de 2008, muitos furries acreditam que artes visuais, convenções, literaturas e comunidades onlines são muito importantes para o fandom.
+O então presidente da FIFA, na época Joseph Blatter, admitiu apoiar a ideia de um país do Oriente Médio receber a competição, tendo afirmado que a região merece ser anfitriã, já que 22 países da região nunca tiveram uma oportunidade concreta de receber um torneio deste tamanho. Blatter elogiou que ficou surpreso com a evolução da então candidatura e reiterou que o país já mostrou ser capaz de organizar tal competição, quando sediou com sucesso os Jogos Asiáticos de 2006.
 
-Artesanatos
+Processo de escolha
 
-Fãs com habilidades artesanais criam bichos de pelúcia e também, de forma mais elaborada, trajes, chamados de fursuits, que são usados por diversos motivos, como diversão ou para participar de convenções. Fursuits vão desde simples peças soltas de uma fantasia, chamadas de halfsuit, até as mais elaboradas que cobre todo o corpo e se assemelham com mascotes. O preço de uma fursuit varia entre $500, para semelhantes a um mascote, até $10.000 para os que incorporam características animatrônicas. Enquanto 80% dos furries não possuem uma fursuit completa, normalmente devido ao alto custo,[9] a grande maioria tem uma opinião favorável às fursuiters e as convenções que participam.
+O processo de escolha para as sedes das edições de 2018 e 2022 iniciou em janeiro de 2009, e as associações interessadas tinham até 2 de fevereiro de 2009 para enviar a documentação necessária. Inicialmente, onze propostas foram recebidas pela FIFA, porém o México decidiu desistir do processo, e a candidatura da Indonésia foi rejeitada pela FIFA em fevereiro de 2010, após a Associação de Futebol da Indonésia não apresentar uma carta de garantia do governo indonésio para apoiar a candidatura.
 
-Fãs de furry também buscam marionetes, gravação de vídeos e realização de shows como Rapid T. Rabbit and Friends e Funday PawPet Show, e a criação de acessórios furry, tais como orelhas e caudas.
+No final, havia cinco propostas para a competição, a Austrália, Catar, Coreia do Sul, Estados Unidos e Japão. Os membros do Comitê Executivo da FIFA se reuniram em Zurique em 2 de dezembro de 2010 para votar e selecionar as sedes das duas edições. Dois membros foram suspensos antes da votação após alegações de corrupção em relação aos seus votos.
 
-Fursona
+XXII Copa do Mundo FIFA
+Congresso Ordinário da FIFA
+2 de dezembro de 2010, em Zurique,  Suíça .
+Países candidatos	1ª Rodada	2ª Rodada	3ª Rodada	4ª Rodada
+ Catar	11	10	11	14
+ Estados Unidos	3	5	6	8
+Coreia do Sul Coreia do Sul	4	5	5	–
+ Japão	3	2	–	–
+ Austrália	1	–	–	–
+A vitória do Catar foi classificada como tendo alto risco operacional pela mídia estadunidense, australiana e britânica. Foi severamente criticada após os escândalos de corrupção na FIFA. O Catar é o menor país em área e população que irá sediar uma Copa do Mundo FIFA, superando a Suíça, que havia sediado em 1954.
 
-Personagens antropomórficos criados pelos furries para representa-lo no fandom são conhecidos como fursonas.
+Eliminatórias
 
-Um furry pode ter vários personagens da qual usa para representar-se, porém a maioria dos furries focam-se apenas numa única e nunca tiveram outro fursona.
+  País classificado para a Copa do Mundo
+  País eliminado nas eliminatórias
+  País suspenso pela FIFA
+  País não é membro da FIFA
+Ver artigo principal: Eliminatórias da Copa do Mundo FIFA de 2022
+Trinta e duas seleções participam na competição, e a catarense não precisou disputar eliminatórias por ser a anfitriã. A distribuição das vagas pelas confederações continentais foi divulgada pelo Comitê Executivo da FIFA em maio de 2015, sem alterações em relação à edição anterior. A princípio a União das Federações Europeias de Futebol (UEFA) reiterava mais uma vaga para o continente europeu, porém a FIFA não cedeu e manteve inalterada a divisão das vagas. Assim, continuaram treze vagas para a UEFA, cinco para a CAF, quatro para a CONMEBOL, quatro para a AFC (sem incluir a vaga do anfitrião Catar) e três para a CONCACAF. Além disso, a repescagem intercontinental ocorre entre uma seleção da AFC e da CONCACAF e outra entre uma da CONMEBOL e da OFC, que não possui vaga garantida direta ao mundial.
 
-Em levantamentos, uma parte afirma que o seu fursona tem como finalidade principal a participação de role-playing jogados através de fóruns da internet, em lista de e-mails, ou em MUD. Role-playing também ocorrem em lugares offline, entre amigos em encontros, com cada um representando o próprio personagem.
+Em 17 de dezembro de 2020, o CAS (Tribunal Arbitral do Esporte), anunciou que a Rússia estaria proibida de usar sua bandeira ou hino em qualquer evento esportivo pelos próximos dois anos, em razão da condenação por escândalos envolvendo a WADA (Agência Mundial Antidoping). Com isso, o país está proibido de usar seu nome durante os Jogos Olímpicos e Paralímpicos de Verão de 2021, as Eliminatórias da Copa de 2022, Jogos Olímpicos e Paralímpicos de Inverno de 2022 e a Copa do Mundo de 2022. Nesse caso, a Seleção Russa de Futebol, se classificada, deverá usar uniformes sem referência ao país e ser tratada como "seleção neutra". Em 22 de fevereiro de 2022, durante a crise na Ucrânia, a seleção da Polônia anunciou que não iria jogar em território russo na repescagem das Eliminatórias. No dia 24, em meio as tensões da Invasão da Ucrânia pela Rússia, as seleções da Suécia e Chéquia também anunciaram que não pretendiam jogar as partidas da repescagem em solo russo, se recusando a participar dos jogos se caso fossem mantidos nesse território e de jogar com a seleção russa. Logo em seguida, a seleção da Inglaterra anunciou o mesmo posicionamento, se estendendo as outras competições como Campeonato Europeu e Liga das Nações. No dia 27, a FIFA anunciou o banimento da Rússia por tempo indeterminado, sendo proibida de usar o nome, hino, camisa e de sediar os próximos torneios. A seleção ainda pode participar das Eliminatórias e da Copa, se classificada, mas usando o nome União Russa de Futebol (RFU) e de maneira neutra, algo semelhante a postura adotada nos Jogos Olímpicos e Paralímpicos de Verão e Inverno de 2020 e 2022. Caso os jogos aconteçam no país, eles devem ocorrer em estádios neutros e de portões fechados. No dia 28, a FIFA em uma reunião extraordinária e atendendo a pressão de países como Suécia, Polônia, Chéquia e Inglaterra, decide desclassificar a Rússia da Copa de 2022, alterando os confrontos em que o país estaria presente nas Eliminatórias.
 
-Em oposição com os que afirmam que o fursona tem como finalidade principal os role-playing, uma parte diz que o fursona representa-o com uma visão um tanto idealizada bem como ajuda-o a experimentar algo novo. Isso sugere que fursonas podem desempenhar um papel importante como mecanismo de apoio, pois na medida em que passa tempo interpretando o personagem idealizado, pode passar a agir como ele, por exemplo, se a pessoa for tímida e idealiza seu fursona como um ser extrovertido poderá perder a timidez
+Sorteio
 
-Convenções
+Após a entrada de novos membros, todas as 211 nações filiadas à FIFA inscreveram-se para participar das eliminatórias.
 
-Interesse suficiente e a adesão dos participantes permitiram que fossem criadas convenções de furry na América do Norte e Europa. Numa convenção furry os fãs se reúnem para comprar e vender trabalhos de artes, participam de workshops, vestem trajes do evento e socializam. O maior encontro deste tipo é o Anthrocon, que ocorre anualmente em Pittsburgh, no mês de junho, e cujo recorde foi de 5 861 participantes. Estima-se que gerou cerca de 3 milhões de dólares para a economia da cidade em 2008. Outra convenção, a Further Confusion, é sediada anualmente, no mês de janeiro, em San José, e se aproxima de Anthrocon em termos de escala e presença de público. Estima-se que US$ 470.000 foram levantados nas convenções para serem doados para instituições de caridade de 2000 até 2009.
+AFC: 43 times competem por 4 vagas diretas para a Copa e 1 vaga para a repescagem intercontinental, que será disputada em jogos de ida e volta contra o 5º colocado das eliminatórias sul-americanas;
+CAF: 54 times competem por 5 vagas diretas para a Copa;
+CONCACAF: 35 times competem por três vagas diretas para a Copa e 1 vaga para a repescagem intercontinental, que será disputada em jogos de ida e volta contra o vencedor das eliminatórias da Oceania;
+CONMEBOL: 10 times competem por 4 vagas diretas para a Copa e 1 vaga para a repescagem intercontinental, que será disputada em jogos de ida e volta contra o 5º colocado das eliminatórias asiáticas;
+OFC: 11 times competem por uma vaga para a repescagem intercontinental, que será disputada em jogos de ida e volta contra o 4º colocado das eliminatórias da CONCACAF;
+UEFA: 55 times competem por 13 vagas diretas para a Copa.
 
-A primeira convenção conhecida, a ConFurence,já não ocorre mais; a Califur foi criada para substituí-la como convenção sediada no Sul da Califórnia.
+Sedes
 
-No Brasil, o primeiro evento criado foi o Abando, introduzido em 2008. Atualmente o país possui diversos eventos regionais e uma convenção furry de hotel, a Brasil FurFest, realizada anualmente na cidade de Santos
+As cinco primeiras sedes propostas para a edição foram reveladas no início de março de 2010. A ideia é que os estádios reflitam os aspectos históricos e culturais do Catar, e cada estádio visa incorporar quatro prioridades: legado, conforto, acessibilidade e sustentabilidade. O Catar pretende construir estádios[63] com os mais altos padrões ambientais e de sustentabilidade, que serão equipados com sistemas de refrigeração ecologicamente corretos, buscando reduzir as temperaturas dentro do estádio em até 20°C (36°F). O objetivo é construir estádios usando materiais ecológicos, equipamentos inofensivos e soluções ecologicamente sustentáveis ​​por meio da implementação de soluções renováveis ​​e de baixo consumo de energia, além de que as camadas superiores dos estádios serão desmontadas após a Copa do Mundo e doadas a países com infraestrutura esportiva menos desenvolvida. O Catar busca ser compatível e certificado pelo Global Sustainability Assessment System (GSAS) em todos os estádios do torneio. Todos os cinco projetos de estádios lançados foram projetados pelo escritório de arquitetura alemão Albert Speer & Partners.
 
-Sites e comunidade online
+Um relatório divulgado em 9 de dezembro de 2010 citou o presidente da FIFA, Joseph Blatter, afirmando que outros países poderiam sediar alguns jogos da Copa do Mundo. No entanto, nenhum país específico foi nomeado no relatório. Blatter acrescentou que qualquer decisão desse tipo deve ser tomada primeiro pelo Catar e depois endossada pelo comitê executivo da FIFA. O príncipe Ali bin Al-Hussein da Jordânia disse a Australian Associated Press que realizar jogos no Bahrein, Emirados Árabes Unidos e na Arábia Saudita ajudaria a integrar o povo da região durante o torneio.
 
-A Internet contém diversos sites a respeito de furry e comunidades online, tais como relacionada à arte (Fur Affinity, Inkbunny, SoFurry, Weasyl), rede sociais (Furry 4 Life, FurNation) e uma wiki colaborativa (WikiFur). Elas, junto com a IRC FurNet e Anthrochat, formam os principais furry fandom. Grupos de notícias como os alt.fan.furry e alt.lifestyle.furry, foram populares por volta da década de 90 e 2005, sendo então substituídos por fóruns, mailing list e comunidade de LiveJournal.
+Em janeiro de 2019, o presidente da FIFA Gianni Infantino divulgou um relatório preliminar com as oito sedes já confirmadas para o evento, ressaltando a possibilidade de aumento ou diminuição deste número.
 
-Há diversos webcomics criador por e para fãs de furry, das quais são referidos como furry comics. Um desses comic, T.H.E. Fox, foi o primeiro publicado no Compuserve em 1986, antecedendo a World Wide Web por vários anos, enquanto outros, como Kevin and Kell e Bill Holbrook, foram premiados pela Web Cartoonists' Choice Awards e Ursa Major Award
+Em 21 de novembro de 2022 foi divulgado pela FIFA a capacidade dos oito estádios sedes
 
-No Brasil
+https://www.infomoney.com.br/wp-content/uploads/2019/06/estadio-khalifa-em-doha-catar.jpg?fit=900%2C508&quality=50&strip=all
 
-Devido à popularidade do furry fandom, a mídia produziu algumas matérias a respeito. Dentre as quais:
+Convocações
 
-Janeiro de 2008: A revista NeoTokyo escreveu sobre os furries, focando-se nas fursuit, pois eles se assemelham aos cosplays, frequentemente encontrados nas convenções de anime.
-3 de janeiro de 2010: A Rede Globo exibiu no programa Fantástico uma reportagem sobre o fandom furry, focado em fursuits e o que fazem essas pessoas.
-24 de abril de 2010: A equipe de produção do Caldeirão do Huck vestiu-se com fursuits para criar um ambiente mais lúdico no quadro "Lata Velha".
-9 de maio de 2010: O jornal Diário de Guarulhos apresentou a história do fandom, entrevistou alguns furries e explicou alguns detalhes, como a organização do grupo e alguns dos termos usados.
-11 de setembro de 2016: Uma foto da fursuit parade da Brasil FurFest estampou a capa da edição de domingo de A Tribuna, jornal de maior circulação no litoral do estado de SP. O site do jornal e o site da TV Tribuna, afiliada da Rede Globo na Baixada Santista, também publicaram matérias acerca do evento e do furry fandom.
-12 de setembro de 2016: A TV Record Litoral/Vale, afiliada da Rede Record, dedicou uma matéria de 3 minutos a Brasil FurFest na edição do telejornal Balanço Geral daquele dia.
-15 de setembro de 2016: O repórter Gus Lanzetta do jornal O Estado de S.Paulo esteve na convenção Brasil FurFest e usou a visita como tema para seu podcast "Papo Torto", que é publicado no portal do "Estadão".
-22 de setembro de 2016: Uma extensa matéria escrita pela repórter Joelle-Marie Declercq sobre o Furry Fandom e a Brasil FurFest foi publicada pelo site noticioso Vice Brasil.
-8 de maio de 2017: Novamente o Vice Brasil tratou do furry fandom e de alguns de seus adeptos, dessa vez mostrando o Furboliche, evento de boliche onde os furries se encontram semestralmente, realizado em São Bernardo do Campo.
-20 de setembro de 2019: O portal R7 fez uma extensa matéria sobre o furry fandom e seus adeptos durante a convenção Brasil FurFest 2019.
-Apesar de apresentar e explicar sobre o fandom, a mídia expressa interesse maior nas fursuits, porém, esse é uma dentre as demais características do fandom.
+Ver artigo principal: Convocações para a Copa do Mundo FIFA de 2022
+As seleções classificadas para a Copa do Mundo de 2022, poderão convocar 26 jogadores para a disputa do torneio - anteriormente, cada time podia chamar 23 atletas. A Copa do Mundo de 2022 também terá número de substituições ampliado, seguindo a regra criada durante a pandemia de COVID-19. Ao todo, os times poderão fazer cinco mudanças no tempo normal, mais uma na prorrogação.
 
-![HD-wallpaper-tv-show-helluva-boss-loona-helluva-boss-octavia-helluva-boss](https://user-images.githubusercontent.com/118438998/202444070-73dc40cc-a3ae-494e-86d5-73e0bcf3fda7.jpg)
+Vale lembrar que, na Copa do Mundo de 2018, ainda eram permitidas apenas as três substituições tradicionais.
 
-Animação: Helluva Boos
+A International Football Association Board (Ifab), entidade que controla as regras do futebol, anunciou na quarta-feira, 22 de junho, mudanças nas normas do esporte. Entre elas, estão o aumento do número de jogadores que podem ficar no banco de reservas em cada partida, de 12 para 15 atletas – possibilitando, assim, que todos os 26 convocados de cada seleção estejam disponíveis nos jogos da Copa do Mundo de 2022.
 
-Personagens da imagem: Loona (wolf) e Octavia (owl=coruja)
+Arbitragem
+
+Em 19 de maio de 2022, a FIFA anunciou a lista de 36 árbitros e 69 árbitros assistentes e 24 árbitro assistente de vídeo para o torneio. A FIFA anunciou na sexta-feira, 1 de junho de 2022, que vai utilizar uma nova tecnologia para auxiliar árbitros de campo e responsáveis pelo VAR (videoárbitro) na Copa do Mundo. O impedimento semiautomático tem como propósito diminuir o tempo de análise em lances ajustados e promover decisões mais rápidas por parte da arbitragem.
+
+Para que isso aconteça, as bolas usadas contarão com um sensor no centro da sua estrutura que mandará um sinal cerca de 500 vezes por segundo, permitindo saber o exato momento do contato do pé do atleta em um passe ou chute. Além disso, os estádios contarão com 12 câmeras que rastrearão cada jogador e irão enviar um sinal para o mesmo sistema 50 vezes por segundo, mostrando 29 possíveis pontos de contato do corpo com a bola.
+
+Sedes de treinamento
+
+Os acampamentos base serão usados ​​pelas 32 seleções nacionais para ficar e treinar antes e durante a Copa do Mundo. Em 27 de julho de 2022, a FIFA anunciou os hotéis e locais de treinamento para cada equipe participante. Esta Copa do Mundo é a mais compacta desde a edição inaugural em 1930, pois 24 das 32 equipes estão em um raio de 10 km uma da outra e estão concentradas em a área de Doha. É também a primeira parcela desde 1930 em que os jogadores não precisarão pegar voos para as partidas, podendo permanecer na mesma base de treinamento durante todo o torneio
+
+Cerimônia de abertura
+
+A cerimônia de abertura aconteceu no domingo, 20 de novembro de 2022, no estádio Al Bayt (Al Khor), antes da partida de abertura entre o anfitrião Qatar e Equador . Depois de danças e camelos vivos numa linda apresentação, o ator Morgan Freeman e o influenciador Ghanim Al Muftah fizeram um discurso sobre a inclusão em meios às críticas sobre desrespeito aos direitos humanos no Catar. Logo após mascotes das outras edições dos Mundiais foram lembrados, assim como algumas músicas temas, Waka Waka da cantora Shakira, que foi uma das canções mais festejadas pelos torcedores. O último a aparecer foi o mascote desta edição: o La'eeb, que possui formato dos tradicionais lenços árabes e, seu nome significa "jogador super habilidoso".
+
+As atrações musicais ficaram por conta do cantor Jeon Jung-kook da banda sul-coreana de K-Pop BTS e do cantor catari Fahad Al Kubaisi que também é embaixador da Copa. A cantora Dua Lipa que estava sendo especulada para se apresentar no evento negou seu envolvimento "em qualquer negociação a ser realizada", denunciando o Catar por suas violações de direitos humanos. Antes do encerramento teve mais um discurso, do Emir do Catar o Tamim bin Hamad al-Thani, que em meio a criticas sobre o país desde a escolha para ser sede da Copa do Mundo sobre respeito as mulheres, pessoas LGBT e migrantes que trabalharam para o evento ele disse que "Recebemos a todos de braços abertos na Copa do Mundo 2022. Nós trabalhamos e fizemos muitos esforços para garantir o sucesso desta edição." Após o discurso deu como se encerrado a abertura e logo após ocorreu o primeiro jogo da copa.
+
+Fase de grupos
+
+Equipes classificadas para a fase final
+
+Equipes eliminadas
+O calendário de jogos foi confirmado pela FIFA em 15 de julho de 2020. A partida de abertura, Catar x Equador; será disputada no Estádio Al Bayt no dia 20 de novembro de 2022, às 19h (UTC+3, Catar possui três horas à frente do horário universal, do Meridiano de Greenwich; transmitido em Portugal às 16h UTC 0; transmitido no Brasil às 13h UTC−3). Durante a fase de grupos, quatro partidas serão disputadas por dia, com horários de início às 13hs, 16hs, 19hs e 22hs para as duas primeiras rodadas, e 18hs e 22hs para as partidas simultâneas da última rodada e para as partidas da fase final. A disputa pelo terceiro lugar será realizada no dia 17 de dezembro no Estádio Internacional Khalifa, e a final no dia 18 de dezembro no Estádio Nacional Lusail, ambas às 18hs.
+
+Ao contrário das edições anteriores, em que os locais e horários de início de cada jogo eram definidos antes do sorteio, a atribuição destes fatores só seria feita após o sorteio da fase de grupos. Isso foi possível devido à proximidade das instalações, o que permitiu aos organizadores otimizar a alocação do estádio para os espectadores e os horários de abertura para a audiência da televisão. Os jogos da fase de grupos para cada grupo serão alocados nos seguintes estádios:
+
+Grupos A, B, E, F: Estádio Al Bayt, Estádio Internacional Khalifa, Estádio Al Thumama e Estádio Ahmed bin Ali;
+Grupos C, D, G, H: Estádio Nacional de Lusail, Estádio 974, Estádio da Cidade da Educação, Estádio Al Janoub.
+
+Controvérsias
+Ver artigo principal: Controvérsias sobre a Copa do Mundo FIFA de 2022
+Uma série de grupos e meios de comunicação expressaram preocupação com a adequação do Catar para acolher o evento no que diz respeito à interpretação dos direitos humanos, particularmente as condições dos trabalhadores, os direitos dos torcedores da comunidade LGBT, as condições climáticas extremas do país e as acusações de que o governo local apoia o terrorismo de forma diplomática e financeira.
+
+A escolha do Catar como país anfitrião tem sido controversa; as autoridades da FIFA foram acusadas de corrupção e de permitirem que o Catar "comprasse" a Copa do Mundo, o tratamento dos trabalhadores das construções dos estádios foi questionado por grupos de direitos humanos e os altos custos necessários para tornar o evento uma realidade foram criticados. As condições climáticas fizeram com que alguns chamassem de hospedagem do torneio no país de "impossível", apesar de projetos que previam estádios com ar condicionado e até a mudança da data do torneio para um período do ano que fosse menos quente. Sepp Blatter, que foi o presidente da FIFA quando o Catar foi selecionado, depois observou que escolha do Catar como a sede da Copa do Mundo foi um "erro" devido ao calor extremo.
+
+Em dezembro de 2017, a mídia mexicano Record acredita que a Fifa poderia retirar a organização da Copa do Mundo no Catar por causa do impacto potencial da crise diplomática de junho de 2017 entre o emirado e seus vizinhos.
+
+https://assets.goal.com/v3/assets/bltcc7a7ffd2fbf71f5/bltf72931588aec9e51/61d58597cac20c668bed46e4/h_57308940.jpg?auto=webp&format=jpg&quality=60&width=1280
+
+Condições dos trabalhadores
+A questão dos direitos dos trabalhadores migrantes também atraiu a atenção, depois que uma investigação do jornal The Guardian alegou que a muitos dos trabalhadores são negados alimentos e água, que seus documentos de identidade são retidos e que eles não são pagos em dia ou simplesmente não recebem salários, fazendo com que alguns deles sejam escravos. O jornal britânico estimou que até 4 000 trabalhadores podem morrer devido às falhas de segurança e outras causas quando a competição for realizada. Essas reivindicações foram baseadas no fato de que 522 trabalhadores nepaleses e outros de 700 trabalhadores indianos morreram desde o ano de 2010, quando a candidatura do Catar como anfitrião da Copa do Mundo foi conquistada. Cerca de 250 trabalhadores indianos morreram por ano, mas dado que há meio milhão de trabalhadores indianos no Catar, o governo da Índia diz que é um número bastante normal de mortes. No Reino Unido, em qualquer grupo de meio milhão de homens de 25 a 30 anos, uma média de 300 morrem a cada ano, uma taxa maior que entre os trabalhadores indianos no Catar.
+
+Em maio de 2015, uma equipe de quatro jornalistas da BBC foram presos por dois dias depois de terem tentado denunciar a condição dos trabalhadores no país. Os repórteres foram convidados a visitar o país como convidados do governo catariano.
+
+Em junho de 2015, o The Wall Street Journal informou que a Confederação Sindical Internacional estimou que mais de 1 200 trabalhadores haviam morrido enquanto trabalhavam em projetos imobiliários e de infraestrutura relacionados à Copa do Mundo, sem qualquer explicação do governo do Catar. A BBC informou mais tarde que este número muitas vezes citado de 1 200 trabalhadores que morreram na construção da Copa do Mundo entre 2011 e 2013 não é correto e que o número de 1 200 representa as mortes de todos os indianos e nepaleses que trabalham no Catar, não apenas dos trabalhadores envolvidos na preparação para a Copa do Mundo e/ou apenas dos trabalhadores da construção civil. A maioria dos nativos do Catar evita fazer trabalhos manuais ou empregos pouco qualificados; além disso, eles recebem preferência no local de trabalho.
+
+Eleição
+Ver artigos principais: Caso de corrupção na FIFA em 2015 e Eleição da sede das Copas do Mundo FIFA de 2018 e 2022#Denúncia de compra de votos
+As alegações de corrupção nos processos de licitação para as Copas do Mundo de 2018 e 2022 causaram ameaças da The Football Association da Inglaterra para boicotar o torneio. A FIFA nomeou Michael J. Garcia, advogado dos Estados Unidos, para investigar e produzir um relatório (o Relatório Garcia) sobre as alegações de corrupção. Embora o relatório nunca tenha sido publicado, a FIFA divulgou um resumo de 42 páginas de suas descobertas, conforme determinado pelo juiz alemão Hans-Joachim Eckert. O resumo de Eckert livra a Rússia e o Catar de qualquer irregularidade, mas foi denunciado pelos críticos como parcial. Garcia criticou o resumo como sendo "materialmente incompleto" com "representações errôneas e conclusões dos fatos" e apelou ao Comitê de Recurso da FIFA. O comitê se recusou a ouvir seu recurso, então Garcia renunciou em protesto contra a conduta da FIFA, citando uma "falta de liderança" e falta de confiança na independência de Eckert.
+
+Em 3 de junho de 2015, o FBI confirmou que as autoridades federais estavam investigando os processos de licitação e adjudicação para as Copas do Mundo de 2018 e 2022. Em uma entrevista publicada em 7 de junho de 2015, Domenico Scala, chefe do Comitê de Auditoria e Cumprimento da FIFA, declarou que "deveria haver evidências de que as eleições do Catar e da Rússia aconteceram apenas por causa de votos comprados, então os escolhas poderiam ser canceladas".
+
+Proibições
+No dia 19 de novembro, nas vésperas do início do torneio, o governo catari proibiu o consumo de bebidas alcóolicas nas imediações dos estádios da Copa do Mundo, sendo permitido o consumo apenas, no Fan Fest e durante o período das 19h às 01h no horário local, e nos camarotes, porém neste, com limitações. Devido a isso, a Budweiser, patrocinadora oficial do torneio, anunciou que o país campeão levará pra casa todo o estoque que estava reservado para vendas no Catar durante o torneio.
+
+Foi proibido pela FIFA o uso de braçadeiras de capitão 'One Love' com apoio ao movimento LGBTQIA+ devido a homossexualidade ser ilegal no país. Usadas com frequência por algumas seleções europeias, principalmente a Seleção Inglesa e a Seleção Alemã. Apesar da proibição, os respectivos capitães afirmaram que usariam as braçadeiras como protesto, em contrapartida, a FIFA respondeu dizendo que os atletas que fizessem esse tipo de protesto seriam punidos automaticamente com cartão amarelo. Devido a isso, a seleção inglesa, primeira a jogar após a abertura do torneio, seguiu com o protesto no início da partida contra o Irã, assim todos os jogadores ficaram de joelhos antes do apito inicial. No dia 23 de novembro, a Seleção Alemã também também protestou contra o Catar, na foto oficial da partida de estréia no torneio contra o Japão, os jogadores alemães se manifestaram e taparam a boca e o capitão da equipe, o goleiro Manuel Neuer escondeu a braçadeira de capitão debaixo da camisa, devido a ter sido proibido o uso da braçadeira 'One Love'.
+
+Publicidade
+Mascote
+Ver artigo principal: La'eeb
+Durante a cerimônia que definiu os grupos da Copa do Mundo FIFA de 2022 na sexta-feira (1º), a Fifa apresentou o mascote desta edição do torneio: La'eeb. O significado do nome é “jogador super habilidoso” em árabe. O desenho do mascote é inspirado em lenços de cabeça tradicionais da cultura árabe.
+
+Bola
+Ver artigo principal: Adidas Al Rihla
+A bola foi lançada em 30 de março de 2022 e é produzida pela Adidas, tendo seu nome Al Rihla; traduzido do árabe "A Jornada". Seu desenho é inspirado na cultura, arquitetura e bandeira do país anfitrião.
+
+https://s5.static.brasilescola.uol.com.br/be/2021/11/catar-2022.jpg
+
+Direitos de transmissão
+
+Ver artigo principal: Lista de transmissoras da Copa do Mundo FIFA de 2022
+No Brasil, os direitos de transmissão pertencem ao Grupo Globo pelas TVs aberta (TV Globo), por assinatura (SporTV) e streaming (Globoplay). No caso da segunda, será a primeira vez que transmite a Copa sozinha. Em 23 de junho de 2020, o Grupo Globo entrou com um processo contra a FIFA pela suspensão imediata do pagamento de uma parcela de US$90 milhões (R$462 milhões), referente aos direitos de transmissão da Copa do Mundo FIFA de 2022. O motivo alegado foi a recessão econômica por conta da Pandemia de COVID-19. Em 19 de março de 2021, o processo foi arquivado pela 6ª vara empresarial do Rio de Janeiro após as duas partes chegarem a um acordo, mediante negociações. Em outubro do mesmo ano, o grupo renuncia a permanência dos direitos de exclusividade de transmissão da Copa de 2022 pelas suas plataformas digitais. A renúncia ocorreu depois de tentativas de redução do valor do acordo para a transmissão do evento por meios digitais. Com a renúncia da Globo pela internet, o Facebook chegou a negociar a compra dos direitos de transmissão, mas o projeto não foi adiante.[136] Faltando 16 dias para o início da Copa, o influencer Casimiro, em parceria com a produtora Livermode, anunciou a compra dos direitos de transmissão do mundial no dia 4 de novembro de 2022, em um acordo de sublicenciamento no streaming, para a cobertura no Twitch de 22 dos 64 jogos da Copa. Faltando apenas 3 dias para o início do mundial, em 17 de novembro de 2022, a The Walt Disney Company adquiriu os direitos dos highlights (melhores momentos) para o streaming através do Star+. O Grupo Bandeirantes de Comunicação chegou a negociar com a Globo um acordo de sublicenciamento para as transmissões da Copa no canal por assinatura BandSports. No entanto, as negociações não avançaram após a recusa da Globo em revender os direitos.[139] Apesar de não conseguir os direitos na televisão, o grupo adquiriu os mesmos para a cobertura nas rádios Band FM e BandNews FM. Também transmitirão a copa pela rádio a Rede Transamérica, a Jovem Pan FM e a Rádio Itatiaia.
+
+Pela América do Sul (exceto Brasil), os direitos de transmissão foram adquiridos pela Mountrigi Management Group Limited, grupo pertencente a Televisa, mas com a revenda para emissoras locais, sendo elas a TyC Sports na Argentina, a DirecTV Sports para o Chile, Bolívia, Colômbia, Equador, Peru, Uruguai e Paraguai. No caso da Colômbia, a Caracol Televisión adquiriu os direitos para a TV aberta local. Pelos Estados Unidos, os direitos são pertencentes a Fox Broadcasting Company e Telemundo. Na Europa, a União Europeia de Radiodifusão realiza as negociações com a Fifa para transmitir os jogos também em países menores, mas com os direitos locais já sendo revendidos, sendo eles a RAI na Itália, TF1 na França, ARD na Alemanha e a BBC no Reino Unido. Pela África, a cobertura fica a cargo do SuperSport e a BelN Sports, no caso da última com as transmissões para partes da Ásia e no país sede.
+
+Músicas Oficiais
+"Hayya Hayya (Better Together)" foi a primeira música oficial lançada. A divulgação da faixa coincidiu com o sorteio dos grupos do Mundial. A canção tem forte influência de reggae e R&B, e ela foi gravada pelo cantor americano Trinidad Cardona, a estrela nigeriana de afrobeat Davido, e a sensação pop catariana Aisha.
+
+"Arhbo", é a segunda música oficial da Copa do Mundo do Qatar, e é cantada pelo cantor porto-riquenho Ozuna e o rapper congolês GIMS.
+
+“Light the Sky” é a terceira música produzida para o mundial, e é interpretada por quatro cantoras famosas da cultura árabe – a emiradense Balqees, as marroquinas Nora Fatehi e Manal e a iraquiana Rahma Riad. A canção tem a produção assinada pelo cultuado produtor marroquino-sueco RedOne, multivencedor do Grammy e responsável por alguns dos maiores sucessos de Lady Gaga, como “Poker Face”, “Bad Romance” e “Just Dance”.
+
+Faltando dois dias para o jogo de abertura, a Fifa lançou a música-tema da Fanfest da Copa do Mundo de 2022 (quarta música), que se chama “Tukoh Taka”. A canção, que reúne a rapper Nicki Minaj com Maluma e Myriam Faes, fala sobre a união de fãs de todo planeta. A música tem trechos em inglês, espanhol e árabe.
+
+Pôster
+A Copa do Mundo de 2022 já tem um pôster oficial, divulgado pela Fifa e pelo Comitê Organizador na quarta-feira, 15 de junho. A imagem é obra da artista Bouthayna Al Muftah e será a principal peça de divulgação do Mundial do Catar, que terá outros seis pôsteres antes de a bola rolar, entre 20 de novembro e 18 de dezembro.
+
+Premiação
+A FIFA divulgou que o campeão da Copa do Mundo FIFA de 2022 vai receber, como premiação pela conquista do título mundial, 42 milhões de dólares. Já o país que terminar na segunda posição receberá 30 milhões de dólares. Também haverá premiações para os demais participantes, independente da posição que terminem na competição.

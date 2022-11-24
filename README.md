@@ -190,3 +190,269 @@ Premiação
 A FIFA divulgou que o campeão da Copa do Mundo FIFA de 2022 vai receber, como premiação pela conquista do título mundial, 42 milhões de dólares. Já o país que terminar na segunda posição receberá 30 milhões de dólares. Também haverá premiações para os demais participantes, independente da posição que terminem na competição.
 
 ![1_mascote_copa_do_mundo_catar-7685385](https://user-images.githubusercontent.com/118438998/203765189-12997e74-9b66-4647-abee-7a77e66554a9.jpeg)
+
+GRUPO A
+CLASSIFICAÇÃO
+1	
+Holanda
+0
+2	
+Equador
+0
+3	
+Senegal
+0
+4	
+Catar
+0
+P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
+3	1	1	0	0	2	0	2	100	
+3	1	1	0	0	2	0	2	100	
+0	1	0	0	1	0	2	-2	0	
+0	1	0	0	1	0	2	-2	0	
+2ª RODADA
+SEX 25/11/2022 AL THUMAMA 10:00
+CAT
+Catar
+Senegal
+SEN
+SEX 25/11/2022 INTERNACIONAL KHALIFA 13:00
+HOL
+Holanda
+Equador
+EQU
+
+GRUPO B
+CLASSIFICAÇÃO
+1	
+Inglaterra
+0
+2	
+País de Gales
+0
+3	
+Estados Unidos
+0
+4	
+Irã
+0
+P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
+3	1	1	0	0	6	2	4	100	
+1	1	0	1	0	1	1	0	33	
+1	1	0	1	0	1	1	0	33	
+0	1	0	0	1	2	6	-4	0	
+2ª RODADA
+SEX 25/11/2022 AHMAD BIN ALI 07:00
+GAL
+País de Gales
+Irã
+IRA
+SEX 25/11/2022 AL BAYT 16:00
+ING
+Inglaterra
+Estados Unidos
+EUA
+GRUPO C
+CLASSIFICAÇÃO
+1	
+Arábia Saudita
+0
+2	
+Polônia
+0
+3	
+México
+0
+4	
+Argentina
+0
+P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
+3	1	1	0	0	2	1	1	100	
+1	1	0	1	0	0	0	0	33	
+1	1	0	1	0	0	0	0	33	
+0	1	0	0	1	1	2	-1	0	
+1ª RODADA
+TER 22/11/2022 LUSAIL 07:00
+ARG
+Argentina
+1
+2
+Arábia Saudita
+ARS
+VEJA COMO FOI
+TER 22/11/2022 ESTÁDIO 974 13:00
+MEX
+México
+0
+0
+Polônia
+POL
+
+GRUPO D
+CLASSIFICAÇÃO
+1	
+França
+0
+2	
+Tunísia
+0
+3	
+Dinamarca
+0
+4	
+Austrália
+0
+P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
+3	1	1	0	0	4	1	3	100	
+1	1	0	1	0	0	0	0	33	
+1	1	0	1	0	0	0	0	33	
+0	1	0	0	1	1	4	-3	0	
+2ª RODADA
+SÁB 26/11/2022 AL JANOUB 07:00
+TUN
+Tunísia
+Austrália
+AUS
+SÁB 26/11/2022 ESTÁDIO 974 13:00
+FRA
+França
+Dinamarca
+DIN
+
+GRUPO E
+CLASSIFICAÇÃO
+1	
+Espanha
+0
+2	
+Japão
+0
+3	
+Alemanha
+0
+4	
+Costa Rica
+0
+P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
+3	1	1	0	0	7	0	7	100	
+3	1	1	0	0	2	1	1	100	
+0	1	0	0	1	1	2	-1	0	
+0	1	0	0	1	0	7	-7	0	
+1ª RODADA
+QUA 23/11/2022 INTERNACIONAL KHALIFA 10:00
+ALE
+Alemanha
+1
+2
+Japão
+JAP
+VEJA COMO FOI
+QUA 23/11/2022 AL THUMAMA 13:00
+ESP
+Espanha
+7
+0
+Costa Rica
+CRC
+
+GRUPO F
+CLASSIFICAÇÃO
+1	
+Bélgica
+0
+2	
+Croácia
+0
+3	
+Marrocos
+0
+4	
+Canadá
+0
+P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
+3	1	1	0	0	1	0	1	100	
+1	1	0	1	0	0	0	0	33	
+1	1	0	1	0	0	0	0	33	
+0	1	0	0	1	0	1	-1	0	
+1ª RODADA
+QUA 23/11/2022 AL BAYT 07:00
+MAR
+Marrocos
+0
+0
+Croácia
+CRO
+VEJA COMO FOI
+QUA 23/11/2022 AHMAD BIN ALI 16:00
+BEL
+Bélgica
+1
+0
+Canadá
+CAN
+
+GRUPO G
+CLASSIFICAÇÃO
+1	
+Suíça
+0
+2	
+Brasil
+0
+2	
+Sérvia
+0
+4	
+Camarões
+0
+P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
+3	1	1	0	0	1	0	1	100	
+0	0	0	0	0	0	0	0	0	
+0	0	0	0	0	0	0	0	0	
+0	1	0	0	1	0	1	-1	0	
+1ª RODADA
+QUI 24/11/2022 AL JANOUB 07:00
+SUI
+Suíça
+1
+0
+Camarões
+CAM
+ACOMPANHE EM TEMPO REAL
+QUI 24/11/2022 LUSAIL 16:00
+BRA
+Brasil
+Sérvia
+SER
+
+GRUPO H
+CLASSIFICAÇÃO
+1	
+Coreia do Sul
+0
+1	
+Gana
+0
+1	
+Portugal
+0
+1	
+Uruguai
+0
+P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
+0	0	0	0	0	0	0	0	0	
+0	0	0	0	0	0	0	0	0	
+0	0	0	0	0	0	0	0	0	
+0	0	0	0	0	0	0	0	0	
+1ª RODADA
+QUI 24/11/2022 CIDADE DA EDUCAÇÃO 10:00
+URU
+Uruguai
+Coreia do Sul
+COR
+ACOMPANHE EM TEMPO REAL
+QUI 24/11/2022 ESTÁDIO 974 13:00
+POR
+Portugal
+Gana
+GAN

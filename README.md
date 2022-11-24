@@ -191,268 +191,141 @@ A FIFA divulgou que o campeão da Copa do Mundo FIFA de 2022 vai receber, como p
 
 ![1_mascote_copa_do_mundo_catar-7685385](https://user-images.githubusercontent.com/118438998/203765189-12997e74-9b66-4647-abee-7a77e66554a9.jpeg)
 
-GRUPO A
-CLASSIFICAÇÃO
-1	
-Holanda
-0
-2	
-Equador
-0
-3	
-Senegal
-0
-4	
-Catar
-0
-P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
-3	1	1	0	0	2	0	2	100	
-3	1	1	0	0	2	0	2	100	
-0	1	0	0	1	0	2	-2	0	
-0	1	0	0	1	0	2	-2	0	
-2ª RODADA
-SEX 25/11/2022 AL THUMAMA 10:00
-CAT
-Catar
-Senegal
-SEN
-SEX 25/11/2022 INTERNACIONAL KHALIFA 13:00
-HOL
-Holanda
-Equador
-EQU
+GRUPO A : Catar, Equador, Senegal, Holanda
+20/11 (domingo)
+Catar x Equador - 13h
 
-GRUPO B
-CLASSIFICAÇÃO
-1	
-Inglaterra
-0
-2	
-País de Gales
-0
-3	
-Estados Unidos
-0
-4	
-Irã
-0
-P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
-3	1	1	0	0	6	2	4	100	
-1	1	0	1	0	1	1	0	33	
-1	1	0	1	0	1	1	0	33	
-0	1	0	0	1	2	6	-4	0	
-2ª RODADA
-SEX 25/11/2022 AHMAD BIN ALI 07:00
-GAL
-País de Gales
-Irã
-IRA
-SEX 25/11/2022 AL BAYT 16:00
-ING
-Inglaterra
-Estados Unidos
-EUA
-GRUPO C
-CLASSIFICAÇÃO
-1	
-Arábia Saudita
-0
-2	
-Polônia
-0
-3	
-México
-0
-4	
-Argentina
-0
-P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
-3	1	1	0	0	2	1	1	100	
-1	1	0	1	0	0	0	0	33	
-1	1	0	1	0	0	0	0	33	
-0	1	0	0	1	1	2	-1	0	
-1ª RODADA
-TER 22/11/2022 LUSAIL 07:00
-ARG
-Argentina
-1
-2
-Arábia Saudita
-ARS
-VEJA COMO FOI
-TER 22/11/2022 ESTÁDIO 974 13:00
-MEX
-México
-0
-0
-Polônia
-POL
+21/11 (segunda-feira)
+Senegal x Holanda - 7h
 
-GRUPO D
-CLASSIFICAÇÃO
-1	
-França
-0
-2	
-Tunísia
-0
-3	
-Dinamarca
-0
-4	
-Austrália
-0
-P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
-3	1	1	0	0	4	1	3	100	
-1	1	0	1	0	0	0	0	33	
-1	1	0	1	0	0	0	0	33	
-0	1	0	0	1	1	4	-3	0	
-2ª RODADA
-SÁB 26/11/2022 AL JANOUB 07:00
-TUN
-Tunísia
-Austrália
-AUS
-SÁB 26/11/2022 ESTÁDIO 974 13:00
-FRA
-França
-Dinamarca
-DIN
+25/11 (sexta-feira)
+Catar x Senegal - 10h
 
-GRUPO E
-CLASSIFICAÇÃO
-1	
-Espanha
-0
-2	
-Japão
-0
-3	
-Alemanha
-0
-4	
-Costa Rica
-0
-P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
-3	1	1	0	0	7	0	7	100	
-3	1	1	0	0	2	1	1	100	
-0	1	0	0	1	1	2	-1	0	
-0	1	0	0	1	0	7	-7	0	
-1ª RODADA
-QUA 23/11/2022 INTERNACIONAL KHALIFA 10:00
-ALE
-Alemanha
-1
-2
-Japão
-JAP
-VEJA COMO FOI
-QUA 23/11/2022 AL THUMAMA 13:00
-ESP
-Espanha
-7
-0
-Costa Rica
-CRC
+Holanda x Equador - 13h
 
-GRUPO F
-CLASSIFICAÇÃO
-1	
-Bélgica
-0
-2	
-Croácia
-0
-3	
-Marrocos
-0
-4	
-Canadá
-0
-P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
-3	1	1	0	0	1	0	1	100	
-1	1	0	1	0	0	0	0	33	
-1	1	0	1	0	0	0	0	33	
-0	1	0	0	1	0	1	-1	0	
-1ª RODADA
-QUA 23/11/2022 AL BAYT 07:00
-MAR
-Marrocos
-0
-0
-Croácia
-CRO
-VEJA COMO FOI
-QUA 23/11/2022 AHMAD BIN ALI 16:00
-BEL
-Bélgica
-1
-0
-Canadá
-CAN
+29/11 (terça-feira)
+Holanda x Catar - 12h
 
-GRUPO G
-CLASSIFICAÇÃO
-1	
-Suíça
-0
-2	
-Brasil
-0
-2	
-Sérvia
-0
-4	
-Camarões
-0
-P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
-3	1	1	0	0	1	0	1	100	
-0	0	0	0	0	0	0	0	0	
-0	0	0	0	0	0	0	0	0	
-0	1	0	0	1	0	1	-1	0	
-1ª RODADA
-QUI 24/11/2022 AL JANOUB 07:00
-SUI
-Suíça
-1
-0
-Camarões
-CAM
-ACOMPANHE EM TEMPO REAL
-QUI 24/11/2022 LUSAIL 16:00
-BRA
-Brasil
-Sérvia
-SER
+Equador x Senegal - 12h
 
-GRUPO H
-CLASSIFICAÇÃO
-1	
-Coreia do Sul
-0
-1	
-Gana
-0
-1	
-Portugal
-0
-1	
-Uruguai
-0
-P	J	V	E	D	GP	GC	SG	%	ÚLT. JOGOS
-0	0	0	0	0	0	0	0	0	
-0	0	0	0	0	0	0	0	0	
-0	0	0	0	0	0	0	0	0	
-0	0	0	0	0	0	0	0	0	
-1ª RODADA
-QUI 24/11/2022 CIDADE DA EDUCAÇÃO 10:00
-URU
-Uruguai
-Coreia do Sul
-COR
-ACOMPANHE EM TEMPO REAL
-QUI 24/11/2022 ESTÁDIO 974 13:00
-POR
-Portugal
-Gana
-GAN
+GRUPO B : Inglaterra, Irã, Estados Unidos e País de Gales
+21/11 (segunda-feira)
+Inglaterra x Irã -10h
+
+Estados Unidos x País de Gales - 16h
+
+25/11 (sexta-feira)
+Inglaterra x Estados Unidos - 16h
+
+País de Gales x Irã - 7h
+
+29/11 (terça-feira)
+País de Gales x Inglaterra - 16h
+
+Irã x Estados Unidos - 16h
+
+GRUPO C : Argentina, Arábia Saudita, México e Polônia
+22/11 (terça-feira)
+Argentina x Arábia Saudita - 7h
+
+México x Polônia - 13h
+
+26/11 (sábado)
+Argentina x México - 16h
+
+Polônia x Arábia Saudita - 10h
+
+30/11 (quarta-feira)
+Polônia x Argentina - 16h
+
+Arábia Saudita x México - 16h
+
+GRUPO D : França, Austrália; Emirados Árabes ou Peru, Dinamarca e Tunísia
+
+22/11 (terça-feira)
+Dinamarca x Tunísia - 10h
+
+França x Austrália, Emirados Árabes ou Peru - 16h
+
+26/11 (sábado)
+Tunísia x Austrália - 7h
+
+França x Dinamarca - 13h
+
+30/11 (quarta-feira)
+Tunísia x França - 12h
+
+Austrália, Emirados Árabes ou Peru x Dinamarca - 12h
+
+GRUPO E : Espanha, Costa Rica ou Nova Zelândia; Alemanha e Japão
+23/11 (quarta-feira)
+Alemanha x Japão - 10h
+
+Espanha x Costa Rica ou Nova Zelândia - 13h
+
+27/11 (domingo)
+Japão x Costa Rica ou Nova Zelândia - 7h
+
+Espanha x Alemanha - 16h
+
+01/12 (quinta-feira)
+Japão x Espanha - 16h
+
+Costa Rica ou Nova Zelândia x Alemanha - 16h
+
+GRUPO F : Bélgica, Canadá, Marrocos e Croácia
+23/11 (quarta-feira)
+Marrocos x Croácia - 7h
+
+Bélgica x Canadá - 16h
+
+27/11 (domingo)
+Bélgica x Marrocos 10h
+
+Croácia x Canadá - 13h
+
+01/12 (quinta-feira)
+Croácia x Bélgica - 12h
+
+Canadá x Marrocos - 12h
+
+GRUPO G : Brasil, Sérvia, Suíça e Camarões
+24/11 (quinta-feira)
+Suíça x Camarões - 7h
+
+Brasil x Sérvia - 16h (horário de Brasília), no Estádio Lusail
+
+28/11 (segunda-feira)
+Camarões x Sérvia - 7h
+
+Brasil x Suíça - 13h (horário de Brasília), no Estádio 974
+
+02/12 (sexta-feira)
+Camarões x Brasil - 16h (horário de Brasília), no Estádio Lusail
+
+Sérvia x Suíça - 16h
+
+GRUPO H : Portugal, Gana, Uruguai e Coreia do Sul
+24/11 (quarta-feira)
+Uruguai x Coreia do Sul - 10h
+
+Portugal x Gana - 13h
+
+28/11 (segunda-feira)
+Coreia do Sul x Gana - 10h
+
+Portugal x Uruguai - 16h
+
+02/12 (sexta-feira)
+Coreia do Sul x Portugal - 12h
+
+Gana x Uruguai - 12h
+
+Oitavas de final
+03/12 (sábado)
+1º do grupo A x 2º do grupo B - 12h (Oitavas 1)
+
+1º do grupo C x 2º do Grupo D - 16h (Oitavas 2)
+
+04/12 (domingo)
+1º do grupo B x 2º do grupo A - 16h (Oitavas 3)
